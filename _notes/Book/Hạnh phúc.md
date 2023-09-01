@@ -1,0 +1,2 @@
+Hạnh phúc và đau khổ đều sinh ra từ cùng cha mẹ: [[ham muốn]]
+Khi có tài sản, lời khen...thì vui nhưng vẫn canh cánh nỗi sợ bị mất. Đó là hạnh phúc có điều kiện. Hạnh phúc [[vô điều kiện]] thì không phụ thuộc vào bên ngoài.

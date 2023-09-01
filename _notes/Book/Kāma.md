@@ -1,0 +1,3 @@
+[[Đạo Phật -Buddhism]]
+
+[[Kāma]] Ưa muốn, thích muốn, tham muốn vật chất. Ở đây bắt đầu xuất hiện năng lực của tham hay dục. Cũng từ ước muốn, thích muốn mà sinh tham muốn. Từ tham muốn vật chất, ham muốn ngũ trần mà sinh ra tham dục; và khi muốn hưởng thụ, lại tạo ra mê đắm, đam chấp. Cũng do từ _kāma_ này mà sinh ra mọi hành động thiện hay ác. Nếu thiện thì được làm người hữu phúc, hoá sinh vào 6 cõi trời dục giới. Nếu là bất thiện thì sinh làm người bất hạnh và 4 đường khổ. Do vậy, tham muốn cõi dục được gọi là _kāma_ _taṇhā_. Ở đây, xuất hiện thêm từ _taṇhā_ để xác định là cái dục, cái tham này đã bước lên một cấp độ khác, có dấu vết của nguy hiểm rồi.

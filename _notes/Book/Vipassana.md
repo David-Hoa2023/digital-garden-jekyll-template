@@ -1,0 +1,1 @@
+Dùng sự phản tỉnh "đừng tin nó" khi tiếp xúc với các đối tượng của giác quan.

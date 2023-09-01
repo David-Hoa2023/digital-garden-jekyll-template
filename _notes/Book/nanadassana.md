@@ -1,0 +1,6 @@
+[[Đạo Phật -Buddhism]]
+[[Tỉnh giác]]
+[[Sati - Niệm]]
+[[samadhi]]
+
+**Ñāṇadassana** (‘knowledge and insight’). Buddhist [knowledge](https://www.encyclopedia.com/science-and-technology/computers-and-electrical-engineering/computers-and-computing/knowledge#1O101Knowledge) as an act of ‘seeing’. _Dassana_ indicates ‘seeing or sight’. When combined with _ñāṇa_ it gives the special meaning, ‘insight arising from knowledge’. Thus the [Buddha](https://www.encyclopedia.com/philosophy-and-religion/eastern-religions/buddhism/buddha#1O101Buddha) is described as one who ‘knows and sees’ (_tam ahaṃ jānāmi passāmi_, Majjhima Nikāya 1. 329). The central truths of [Buddhism](https://www.encyclopedia.com/philosophy-and-religion/eastern-religions/buddhism/buddhism) are ‘seen’ (Saṃyutta Nikāya 229). Even nirvāna is ‘seen’ (Majjhima Nikāya 1. 511). According to the Nikāyas this ‘knowledge and insight’ is a result of mental concentration ([samādhi](https://www.encyclopedia.com/philosophy-and-religion/eastern-religions/hinduism/samadhi#1O101Samdhi)), and it is said that there is a causal relation between the attainment of mental concentration and the emergence of this knowledge and insight (Dīgha Nikāya 1.75).

@@ -1,0 +1,18 @@
+[[Đạo Phật -Buddhism]]
+
+[念] (https://hvdic.thivien.net/whv/%E5%BF%B5) Chiết tự: chữ tâm ở trên chữ kim ở dưới; chú ý [[attention]] đến hiện tại
+
+[[Sati - Niệm]] maintain awareness of reality, where sense-perceptions are understood to be illusions and thus the true nature of phenomena can be seen. Sharf notes that this has little to do with "bare attention", the popular contemporary interpretation of _sati_, "since it entails, among other things, the proper discrimination of the moral valence of phenomena as they arise". (https://en.wikipedia.org/wiki/Sati_(Buddhism)[[cite_note-FOOTNOTESharf2014943-4]])
+
+
+[Bhikkhu Bodhi](https://en.wikipedia.org/wiki/Bhikkhu_Bodhi "Bhikkhu Bodhi") also points to the meaning of "sati" as "memory":
+
+> The word derives from a verb, sarati, meaning “to remember,” and occasionally in Pali sati is still explained in a way that connects it with the idea of memory. But when it is used in relation to meditation practice, we have no word in English that precisely captures what it refers to. An early translator cleverly drew upon the word mindfulness, which is not even in my dictionary. This has served its role admirably, but it does not preserve the connection with memory, sometimes needed to make sense of a passage.
+
+Buddhist scholars translated _smṛti_ with the [Chinese](https://en.wikipedia.org/wiki/Chinese_language "Chinese language") word _nian_ 念 "study; read aloud; think of; remember; remind". _Nian_ is commonly used in [Modern Standard Chinese](https://en.wikipedia.org/wiki/Modern_Standard_Chinese "Modern Standard Chinese") words such as _guannian_ 觀念 (观念) "concept; idea", _huainian_ 懷念 (怀念) "cherish the memory of; think of", _nianshu_ 念書 (念书) "read; study", and _niantou_ 念頭 (念头) "thought; idea; intention". Two specialized Buddhist terms are _[nianfo](https://en.wikipedia.org/wiki/Nianfo "Nianfo")_ 念佛 "chant the name of Buddha; pray to Buddha" and _nianjing_ 念經 (念经) "chant/recite sutras".
+
+This [Chinese character](https://en.wikipedia.org/wiki/Chinese_character "Chinese character") _nian_ 念 is composed of _jin_ [今](https://en.wiktionary.org/wiki/%E4%BB%8A "wikt:今") "now; this" and _xin_ [心](https://en.wiktionary.org/wiki/%E5%BF%83 "wikt:心") "heart; mind". [Bernhard Karlgren](https://en.wikipedia.org/wiki/Bernhard_Karlgren "Bernhard Karlgren") graphically explains _nian_ meaning "reflect, think; to study, learn by heart, remember; recite, read – to have 今 present to 心 the mind".(https://en.wikipedia.org/wiki/Sati_(Buddhism)[[cite_note-15]]) The Chinese character _nian_ or _nien_ 念 is pronounced as [Korean](https://en.wikipedia.org/wiki/Korean_language "Korean language") _yeom_ or _yŏm_ 염, [Japanese](https://en.wikipedia.org/wiki/Japanese_language "Japanese language") ネン or _nen_, and [Vietnamese](https://en.wikipedia.org/wiki/Vietnamese_language "Vietnamese language") _niệm_.
+
+According to Paul Williams, referring to Erich Frauwallner, mindfulness provided the way to liberation, "constantly watching sensory experience in order to prevent the arising of cravings which would power future experience into rebirths. (https://en.wikipedia.org/wiki/Sati_(Buddhism)[[cite_note-FOOTNOTEWilliamsTribe200046-19]])[[note 3]](https://en.wikipedia.org/wiki/Sati_(Buddhism)[[cite_note-24]])  Buddhadasa also argued that mindfulness provides the means to prevent the arising of disturbing thought and emotions, which cause the further chain of reactions leading to rebirth of the ego and selfish thought and behavior.(https://en.wikipedia.org/wiki/Sati_(Buddhism)[[cite_note-FOOTNOTEBuddhadasa201478-80]],_101-102,_117_(note_42)-25)
+
+[[sampajañña]] clear comprehension

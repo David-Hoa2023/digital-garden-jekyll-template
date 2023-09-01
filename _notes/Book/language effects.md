@@ -1,0 +1,5 @@
+[[metaphor]]
+[[metaphors in advertising]]
+[[metaphors we live by]]
+[[opposite meaning]]
+[[repetitition - điệp từ]]

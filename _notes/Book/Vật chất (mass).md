@@ -1,0 +1,1 @@
+Theo lý thuyết của mọi vật có khối lượng đều có[[ năng lượng (energy)]] (công thức E=mc²) do đó cũng có thể nói mọi dạng thực thể của vật chất trong tự nhiên đều có năng lượng.

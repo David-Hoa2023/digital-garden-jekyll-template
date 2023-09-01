@@ -1,0 +1,8 @@
+[[Đạo Phật -Buddhism]]
+
+[[Taṇhā]] ái dục, dục lạc. [[Taṇhā]] này nó nằm khắp ba cõi: Ái [[cõi dục giới]] là [[kāma-taṇhā]] Ái [[cõi sắc giới]] là rūpa taṇhā - tức là chán [[cõi dục]] vật chất, mong thụ hưởng [[hỷ lạc]] của tinh thần. Ái [[cõi vô sắc giớ]] là [[arūpa taṇhā]] – là chán [[cõi sắc giới]], chỉ mong thụ hưởng [[trạng thái xả]] và [[nhất tâm]] của [[cõi vô sắc]]. Ba cái [[Taṇhā]] này còn được hiểu sâu thêm một chút khi tu tập [[minh sát]]. Nếu ta đang [[dính mắc]], say đắm trong các dục hiện tại ([[dục lạc ngũ trần]]) thì gọi là [[kāma-taṇhā]] Nếu ta thích thú cái gì đó, mong nó còn mãi bên ta – mong nó thường tồn, cầm giữ, níu giữ mãi sợ nó mất đi thì được gọi là [[bhava-taṇhā]]. Những người tu học mà mong đến cõi vĩnh hằng, [[thường lạc]], [[thường ngã]] thì rơi vào ái này, nên [[bhava-taṇhā]] còn được dịch là [[hữu ái]] (do tham) rơi vào [[thường kiến]]. Ngược lại, nếu ta không thích cái gì, không vừa lòng điều gì, đối tượng nào, hoàn cảnh nào, ta lại muốn chối bỏ, phủ nhận, muốn chấm dứt, muốn triệt tiêu thì rơi vào [[abhava-taṇhā]] là [[phi hữu ái]] (do sân), rơi vào [[đoạn kiến]].
+
+Còn nữa, trong [[thập nhị duyên khởi]], [[taṇhā]] được dịch là ái (ái, thủ, hữu), ngại rằng không nói đủ nghĩa của [[Taṇhā]] Tại sao vậy? Vì trong [[Taṇhā]] ở nơi [[Taṇhā]] cái gì thích thì phát sanh tham, cái gì không thich thì phát sanh sân. Vậy ở trong [[Taṇhā]] nó có đầy đủ tham, sân, thương, ghét! Ta phải nhận diện chúng, thấy rõ chúng, nếu không, không thể tu tập minh sát để chấm dứt khổ (dukkha) được[^1]
+
+
+[^1]: https://thuvienhoasen.org/a21221/bon-lau-hoac

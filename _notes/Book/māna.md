@@ -1,0 +1,4 @@
+[[Đạo Phật -Buddhism]]
+ngã mạn [[2]](http://www.trungtamhotong.org/NoiDung/ThuVien/DoanTruLauHoac/DoanTru5.htm#2) (_māna_) như động lực cơ bản, nên sự thôi thúc sống còn chủ yếu là một sự phấn đấu của tự ngã để được sống còn mà thôi. Nói khác hơn, bản ngã là động lực nằm đằng sau hữu lậu này. Kinh văn cũng nói rằng sự bám chặt vào cuộc sống này ám chỉ chung các cảnh giới (trong tam giới). Cho dù bản chất của ngã mạn có là gì chăng nữa - có thể là ỷ hơn, ỷ bằng, ỷ thua - thì đặc tính cơ bản của nó cũng như nhau, đó là, một sự thôi thúc để được nhìn nhận.[^1]
+
+[^1]: http://www.trungtamhotong.org/NoiDung/ThuVien/DoanTruLauHoac/DoanTru5.htm

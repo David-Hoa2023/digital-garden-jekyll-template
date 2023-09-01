@@ -1,0 +1,11 @@
+[[Rāga]] Là dục, ái dục, là tình dục. Đây là dục nguy hiểm nhất trong quan hệ, ái luyến nam nữ. Nếu say mê đeo đuổi dục tình, đắm đuối trong tình dục thì được gọi là [[Rāga]] Nó như uống nước mặn, càng uống càng khát, không bao giờ thoả mãn cơn khát. Bản chất của tình dục là càng thêm thì càng thiếu. Đến quả vị thánh A-na-hàm mới cắt được [[Rāga]] này [(2)](https://thuvienhoasen.org/a21221/bon-lau-hoac#_ftn2). Không ngạc nhiên gì khi bà Visākhā, vị thánh Nhập Lưu mà có đến 20 người con, gồm 10 trai, 10 gái, vì bà mới vào dòng giải thoát, mới cắt được 3 sợi đầu, nhưng “tình dục” và “bất bình” thì còn y nguyên [(3)](https://thuvienhoasen.org/a21221/bon-lau-hoac#_ftn3).
+
+Tuy nhiên, ta hãy lưu ý:
+
+- Nếu [[Rāga]] có [[pema]]tiếp sức, do sự thương yêu chân thành, thuỷ chung như tiền thân Bồ-tát và nàng Yasodharā thì sợi dây luyến ái, buộc ràng kia trở thành chất keo gắn kết họ với nhau trên con đường tu tập công hạnh ba-la-mật.
+
+- Trong tình thương, yêu mến, thân ái [[pema]]  trong ham muốn ngũ trần (kāma), trong ái dục, dục lạc [[Taṇhā]]  và trong tình dục [[Rāga]]  đều có sự tham dự của tâm sở tham [[lobha]], tạo nên sự dính mắc. Nếu tất cả chúng ([[pema]], [[kāma]], [[taṇhā]], [[rāga]]) được hướng dẫn đúng đắn, được trí tuệ soi đường, được nhiều thiện pháp nâng đỡ - thì chúng tạo nên sự đồng lòng, chung sức, tiến tu, hướng thượng rất tốt vậy!
+
+(Lưu ý thêm, ngoài bài: Đối với Phật giáo Nam tông, học Phật, tu Phật nên đi thẳng vào từ Pāḷi hoặc ít ra là có từ Pāḷi đi kèm để khỏi lân lộn giữa các khái niệm. Nói thật, tôi cũng đã từng _“điên đầu”_ về những từ như dục, ái, tham, ái luyến, ái dục, hỷ tham, ái tham, dục tham, tình dục, dục ái... và cho đến bây giờ vẫn còn lẫn lộn, đôi nơi chưa điều chỉnh, đính chính được. Chúng ta cứ thử tưởng tượng, từ ngữ nguyên Pāḷi như trên mà dịch ra _“vài lần”_ sang ngôn ngữ khác thì khái niệm ban đầu bị lệch nghĩa, sai trật như thế nào? Và có lẽ Bắc truyền cũng vậy, dường như thầy Tuệ Sỹ có khuyến cáo Tăng Ni sinh là nên học Sanskrit, nếu không sẽ rơi vào _“Phật của Tàu”_ mà không hề biết!)[^1].
+
+[^1]: https://thuvienhoasen.org/a21221/bon-lau-hoac

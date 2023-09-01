@@ -1,0 +1,2 @@
+Nature of adversity: 
+Obstacles generally reduce the odds of success. But for the small subset that surmounts the obstacles, the experience can be life-altering and irreplaceable. They may well be driven to work and to achieve at levels their peers with more comfortable childhoods cannot match.

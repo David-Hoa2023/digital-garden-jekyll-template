@@ -1,0 +1,2 @@
+ Like having curated worktables with all your relevant index cards placed on them. MOCs will help you overcome the overwhelming anxiety that can arise from having notes scattered everywhere.
+ [[Home Note]]

@@ -1,0 +1,1 @@
+- A city that is 10 times larger than its neighbor is 17 times more innovative

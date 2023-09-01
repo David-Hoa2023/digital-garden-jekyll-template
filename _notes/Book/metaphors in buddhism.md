@@ -1,0 +1,1 @@
+[[Nghiệp - Karma]] as [[bank account]]

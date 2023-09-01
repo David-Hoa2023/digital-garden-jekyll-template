@@ -1,0 +1,1 @@
+Pháp hữu vi: "tôi", "họ", "của tôi", "của họ" đều thuộc về sự thật quy ước. Khi tâm vượt qua các pháp hữu vi, nó sẽ biết thế nào là phap vô vi (không bị đặt điều kiện, không bị tác động, đối cảnh vô tâm).

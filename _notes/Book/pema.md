@@ -1,0 +1,3 @@
+[[Đạo Phật -Buddhism]]
+
+[[pema]] Là tình thương, sự yêu mến, tình thân ái trong cuộc sống đời thường. _Pema_ này là vòng tay dịu dàng mềm mại gắn kết tình cảm giữa cha mẹ, vợ chồng, con cái, thầy trò, bè bạn, quyến thuộc, xóm làng... Nó là cái đẹp giữa đời thường, là trái tim trong cuộc sống, nếu thiếu nó thì thế gian sẽ khô cỗi, vô cảm, dửng dưng, lạt lẽo. Chỉ khi _pema_ vượt quá giới hạn sinh ra đam luyến, dính mắc, đem lại sầu bi ưu não cho nhau thì không còn giữ được tính chất đẹp của nó nữa, đã bước sang dạng khác rồi. Như thế, _pema_ cũng chưa phải là dục, là tham, là ái gì cả.

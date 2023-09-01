@@ -1,0 +1,1 @@
+[Năng lượng] là một thuộc tính cơ bản của tất cả các thực thể vật chất trong tự nhiên.

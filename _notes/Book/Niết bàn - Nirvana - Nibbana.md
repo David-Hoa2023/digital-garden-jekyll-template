@@ -1,0 +1,1 @@
+Nơi nào không có điểm tựa ([[vô trụ]]), không có thứ gì để nắm giữ, nơi đó có sự [[rỗng không]], và Niết bàn là sự rỗng không này.

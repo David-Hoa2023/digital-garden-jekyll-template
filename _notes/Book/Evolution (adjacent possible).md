@@ -1,0 +1,1 @@
+When our ancestors evolved opposable thumbs, they opened up a whole new cultural branch of the adjacent possible: the creation and use of finely crafted tools and weapons [[Innovation (sáng tạo)]]

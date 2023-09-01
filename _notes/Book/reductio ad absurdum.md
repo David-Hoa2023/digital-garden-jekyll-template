@@ -1,0 +1,8 @@
+[[premises]]
+[[principle of consistency]]
+[[principle of noncontradiction]]
+[[law of the excluded middle]]
+[[law of noncontradiction]]
+[[Argument by refutation]]
+[[logic]]
+[[premises]]
